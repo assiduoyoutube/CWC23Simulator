@@ -169,7 +169,7 @@
 
 &#x200B;
 
-# South Africa (231-0; 25 Overs) BEAT England (230-10; 50 Overs) by 10 Wickets
+# South Africa (231-0; 30 Overs) BEAT England (230-10; 50 Overs) by 10 Wickets
 
 |South Africa Batsmen|South Africa Bowlers|England Batsmen|
 |:-|:-|:-|
